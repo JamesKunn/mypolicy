@@ -1,1 +1,0 @@
-# mypolicy.github.io
